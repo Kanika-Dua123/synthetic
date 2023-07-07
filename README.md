@@ -1,0 +1,5 @@
+![Screenshot (277)](https://github.com/Kanika-Dua123/synthetic/assets/124149144/ba44eb8c-52ba-4700-a631-7301764f14df)
+![Screenshot (278)](https://github.com/Kanika-Dua123/synthetic/assets/124149144/915519f7-8099-48b0-9d20-3411cbbd3e9c)
+![Screenshot (279)](https://github.com/Kanika-Dua123/synthetic/assets/124149144/e1407e92-92c2-4c41-8cdf-efb96f211c77)
+![Screenshot (280)](https://github.com/Kanika-Dua123/synthetic/assets/124149144/9b673fb3-a485-4ab0-92a5-02135d540cce)
+![Screenshot (281)](https://github.com/Kanika-Dua123/synthetic/assets/124149144/732c6144-40bd-435a-9a83-93cd955ac77b)
